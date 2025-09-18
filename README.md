@@ -1,7 +1,7 @@
 # JEON
 
 
-안녕하세요 저에요. 놀러오세요 :) https://github.com/jangseonho
+선호웅니 :) https://github.com/jangseonho
 
- 서로 이웃해요~ https://github.com/suhyeon1032/hshfork
+ 허수웅니~ https://github.com/suhyeon1032/hshfork
 
